@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Aniz996
 - 👀 I’m interested in gaming lol (Minecraft and tombrider and other music games
 
-- 🌱 I’m currently learning on school👍
+- 🌱 I’m currently learning on Scholl
 - 💞️ I’m looking to collaborate on idk 😐 i am looking for ppls
 
 - 📫 How to reach me my snapchat : a.anix3 and discord : ✨Anielix<33#0669 if u want my Messenger wrote to me:) 
